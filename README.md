@@ -1,3 +1,10 @@
+- 💸 29
+- 🎹 Executive Producer
+- 🎓 Berklee College of Music
+- 🎼 Masters of Music in MP
+- 🎶 Bachelors in Electronic MP & SD
+- 💣 Ret. U.S. Navy (AO3)
+
 - 👋 Hi, I’m @chasewebb
 - 👀 I’m interested in ... collabroation
 - 🌱 I’m currently learning ... how to code
@@ -5,13 +12,6 @@
 - 📫 How to reach me ... paperchasewebb@gmail.com
 
 - ➕ Connect with PaperCha$eWebb 💸
-
-- 💸 29
-- 🎹 Executive Producer
-- 🎓 Berklee College of Music
-- 🎼 Masters of Music in MP
-- 🎶 Bachelors in Electronic MP & SD
-- 💣 Ret. U.S. Navy (AO3)
 
 - 📲 Text: (937)-546-3755
 - 💿 Stream: https://lnkfi.re/chasewebb/ 
