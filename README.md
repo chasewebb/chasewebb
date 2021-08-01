@@ -1,4 +1,4 @@
-- 💸 29
+- 💸 30
 - 🎹 Executive Producer
 - 🎓 Berklee College of Music
 - 🎼 Masters of Music in MP
